@@ -3,7 +3,8 @@
 ![Logo](https://i.ibb.co/LFPfB9Q/19871.png)
 
 ## Developer
-**DARK CYBER SASA**
+**DARK CYBER SASA**  
+![Developer](https://i.ibb.co/RkCYqb68/1324.webp)
 
 ---
 
